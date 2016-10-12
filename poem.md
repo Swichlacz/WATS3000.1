@@ -5,7 +5,7 @@
 
 
    >**"No doubt the pleasure is as great,
-   >Of being cheated as to cheat."** - HUDIBRAS.
+   >of being cheated as to cheat."** - HUDIBRAS.
 
 
     The history of human-kind to trace,
