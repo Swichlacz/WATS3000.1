@@ -1,11 +1,11 @@
-   **A Black Job.**
+   ###A Black Job.
 
    *By Thomas Hood*
 
 
 
-   **__"No doubt the pleasure is as great,
-   Of being cheated as to cheat."__** - HUDIBRAS.
+   **"No doubt the pleasure is as great,
+   Of being cheated as to cheat."** - HUDIBRAS.
 
 
     The history of human-kind to trace,
