@@ -4,7 +4,7 @@
 
 
 
-     "No doubt the pleasure is as great,
+     >"No doubt the pleasure is as great,
      Of being cheated as to cheat." * - HUDIBRAS.
 
 
