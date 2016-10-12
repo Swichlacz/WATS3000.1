@@ -1,6 +1,6 @@
    **A Black Job.**
 
-    By Thomas Hood
+    *By Thomas Hood*
 
 
 
