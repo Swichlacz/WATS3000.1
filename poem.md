@@ -4,27 +4,27 @@
 
 
 
-   *"No doubt the pleasure is as great,
-   Of being cheated as to cheat."* - HUDIBRAS.
+   **__"No doubt the pleasure is as great,
+   Of being cheated as to cheat."__** - HUDIBRAS.
 
 
-  The history of human-kind to trace,
-  Since Eve - the first of dupes - our doom unriddled,
-  A certain portion of the human race
-  Has certainly a taste for being diddled.
+    The history of human-kind to trace,
+    Since Eve - the first of dupes - our doom unriddled,
+    A certain portion of the human race
+    Has certainly a taste for being diddled.
 
-  Witness the famous Mississippi dreams!
-  A rage that time seems only to redouble - 
-  The Banks, Joint-Stocks, and all the flimsy schemes,
+    Witness the famous Mississippi dreams!
+    A rage that time seems only to redouble - 
+    The Banks, Joint-Stocks, and all the flimsy schemes,
    
-  For rolling in Pactolian streams,
-  That cost our modern rogues so little trouble.
-  No matter what, - to pasture cows on stubble,
-  To twist sea-sand into a solid rope,
-  To make French bricks and fancy bread of rubble,
-  Or light with gas the whole celestial cope - 
-  Only propose to blow a bubble,
-  And Lord! what hundreds will subscribe for soap!
+    For rolling in Pactolian streams,
+    That cost our modern rogues so little trouble.
+    No matter what, - to pasture cows on stubble,
+    To twist sea-sand into a solid rope,
+    To make French bricks and fancy bread of rubble,
+    Or light with gas the whole celestial cope - 
+    Only propose to blow a bubble,
+    And Lord! what hundreds will subscribe for soap!
 
     Soap! - it reminds me of a little tale,
     Tho' not a pig's, the hawbuck's glory,
